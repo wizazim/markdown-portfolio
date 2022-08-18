@@ -1,1 +1,0 @@
-WELCOME to JAMROCK
